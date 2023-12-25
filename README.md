@@ -86,4 +86,4 @@ You are advised to review this Privacy Policy periodically for any changes. Chan
 This Privacy Policy was last updated on 2023/12/25 22:12:43
 
 Contact Us
-If you have any questions about this Privacy Policy, You can contact us via email at naduxa3009@gmail.com
+If you have any questions about this Privacy Policy, You can contact us via email at dmitriik95@rambler.ru
